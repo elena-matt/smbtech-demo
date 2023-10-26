@@ -1,4 +1,4 @@
 # smbtech-demo
 this is my repository
 <br>
-Sky you are a winner
+Sky you are Stronger
